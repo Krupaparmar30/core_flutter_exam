@@ -10,3 +10,9 @@ A new Flutter project.
 
 
 </P>
+[Uploading From Red And White Multimedia Education Percentage  76.53 % (1).pdf…]()
+[From Red And White Multimedia Education Percentage  76.53 %.pdf](https://github.com/user-attachments/files/15912928/From.Red.And.White.Multimedia.Education.Percentage.76.53.pdf)
+
+
+https://github.com/Krupaparmar30/core_flutter_exam/assets/149374671/a4e88466-956f-4c66-8134-ec0b3c0fae62
+
